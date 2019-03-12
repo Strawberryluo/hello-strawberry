@@ -1,3 +1,3 @@
 # hello-strawberry
 Just sweet~
-I love bobo.
+I love bobo very much.
